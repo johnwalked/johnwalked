@@ -1,1 +1,1 @@
-Hi I'm Johnnes from Ethiopia, trying to be a developer!
+Hi I'm Johannes from Ethiopia, trying to be a developer!
