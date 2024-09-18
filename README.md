@@ -1,4 +1,23 @@
-Hi I'm Johannes from Ethiopia, trying to be a developer!
+Hi I'm John
+
+![meka brand@1 5x](https://github.com/user-attachments/assets/71223a23-1613-4496-864f-be176cf22bed)
+.
+.
+.
+![Meki Logo](https://github.com/user-attachments/assets/29710bd2-ca29-42e0-8b8e-07f3a478c63e)
+.
+.
+.
+![Meki Logo2](https://github.com/user-attachments/assets/bd564a01-2749-4bd7-bf43-5a042be33e74)
+.
+.
+.
+![MEKA BUSINESS CARD](https://github.com/user-attachments/assets/da85d099-2195-444f-895b-441a6c1478e9)
+.
+.
+.
+![LIYANA BOOK](https://github.com/user-attachments/assets/eea19fad-a05a-49d5-9e59-1ddcc1c48884)
+
 .
 .
 This is my 1st work as a social media manager at Vintage Pixels.
